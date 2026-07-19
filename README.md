@@ -190,6 +190,28 @@ We all know the Pacific Ocean is big, but its true scale is almost impossible fo
 The Pacific Ocean isn't just a body of water separating continents; it is practically an entire water-world hemisphere dominating half of our planet.
 
 ---
+## 🔬 Science Facts Hub — Phase 3 (Day 40) 🚀
+
+"Exploration is in our nature. We began as wanderers, and we are wanderers still." — Carl Sagan
+
+Welcome to Day 40! We have reached a significant milestone. Today, we are celebrating the farthest objects ever created by human hands: The Voyager Space Probes. Did you know that even after 49 years, these metallic ambassadors are still traveling through deep space, carrying a "time capsule" for potential extraterrestrial life?
+
+---
+
+### 🛰️ The Voyager Mission: Humanity's Message in a Bottle
+
+Launched in 1977, Voyager 1 and Voyager 2 are the most distant human-made objects in existence. They were originally designed for a 5-year mission to study Jupiter and Saturn, but they have refused to stop exploring.
+
+- **Entering Interstellar Space:** Voyager 1 officially crossed the "heliopause"—the bubble created by the Sun's solar wind—and entered interstellar space in 2012. It is now cruising through the space between stars, far beyond the reach of our Sun’s protective influence.
+- **The Golden Record:** Each probe carries a 12-inch gold-plated copper phonograph record. It contains sounds and images selected to portray the diversity of life and culture on Earth, including greetings in 55 languages, the sound of a heartbeat, music from Mozart to Chuck Berry, and even whale songs.
+- **Extreme Distance:** As of today, Voyager 1 is over **15 billion miles (24 billion kilometers)** away from Earth. It takes light—and our radio signals—over 22 hours just to reach the probe.
+- **The Power Down:** Both probes are running on radioactive power sources (RTGs) that are slowly fading. NASA scientists are continuously shutting down non-essential systems, one by one, to keep the core instruments alive for as long as possible, hoping to get data until the late 2020s.
+
+**In Short:**
+The Voyager probes are humanity’s quiet ambassadors. Long after Earth changes or human history moves on, these two silent travelers will continue drifting through the galaxy, acting as a permanent record that we were here, we dreamed, and we reached for the stars.
+
+---
+
 
 
 
