@@ -211,6 +211,20 @@ Launched in 1977, Voyager 1 and Voyager 2 are the most distant human-made object
 The Voyager probes are humanity’s quiet ambassadors. Long after Earth changes or human history moves on, these two silent travelers will continue drifting through the galaxy, acting as a permanent record that we were here, we dreamed, and we reached for the stars.
 
 ---
+## 🔬 Science Facts Hub — Phase 3 (Day 41) 🚀
+
+"Somewhere, something incredible is waiting to be known." — Carl Sagan
+
+Welcome to Day 41! Today's micro-fact is about the speed of lightning. Did you know that lightning is 5 times hotter than the surface of the Sun?
+
+---
+
+### ⚡ The Superheated Strike
+
+- **The Sun's Heat:** The surface of the Sun is incredibly hot, reaching about 5,500°C.
+- **The Lightning Heat:** When a bolt of lightning strikes, it rips through the air and heats the surrounding atmosphere to a staggering 30,000°C in a fraction of a second.
+- **Why It Happens:** This extreme heat causes the air to expand rapidly and explode, which is what creates the loud boom of thunder we hear.
+
 
 
 
