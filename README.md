@@ -224,6 +224,18 @@ Welcome to Day 41! Today's micro-fact is about the speed of lightning. Did you k
 - **The Sun's Heat:** The surface of the Sun is incredibly hot, reaching about 5,500°C.
 - **The Lightning Heat:** When a bolt of lightning strikes, it rips through the air and heats the surrounding atmosphere to a staggering 30,000°C in a fraction of a second.
 - **Why It Happens:** This extreme heat causes the air to expand rapidly and explode, which is what creates the loud boom of thunder we hear.
+## 🔬 Science Facts Hub — Phase 3 (Day 42) 🚀
+
+Did you know your brain burns **20% of your daily energy**, despite being only 2% of your body weight?
+
+---
+
+### 🧠 The Brain's Energy Secret
+
+- **Mass vs. Energy:** Weighs ~3 lbs (~1.4 kg), but consumes the most fuel.
+- **Main Fuel:** Uses glucose and oxygen to send billions of electrical signals daily.
+- **Always Active:** It never stops burning energy—even when you are fast asleep!
+
 
 
 
