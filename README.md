@@ -235,6 +235,17 @@ Did you know your brain burns **20% of your daily energy**, despite being only 2
 - **Mass vs. Energy:** Weighs ~3 lbs (~1.4 kg), but consumes the most fuel.
 - **Main Fuel:** Uses glucose and oxygen to send billions of electrical signals daily.
 - **Always Active:** It never stops burning energy—even when you are fast asleep!
+## 🔬 Science Facts Hub — Phase 3 (Day 43) 🚀
+
+Did you know **bananas are naturally radioactive**? 🍌
+
+---
+
+### 🍌 Radioactive Bananas
+
+- **The Source:** They are rich in potassium, including a tiny amount of the natural isotope **Potassium-40**.
+- **Completely Safe:** You would need to eat **10 million bananas at once** to get lethal radiation!
+
 
 
 
