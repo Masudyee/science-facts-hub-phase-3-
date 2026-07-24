@@ -245,6 +245,17 @@ Did you know **bananas are naturally radioactive**? 🍌
 
 - **The Source:** They are rich in potassium, including a tiny amount of the natural isotope **Potassium-40**.
 - **Completely Safe:** You would need to eat **10 million bananas at once** to get lethal radiation!
+## 🔬 Science Facts Hub — Phase 3 (Day 44) 🚀
+
+Did you know it **rains diamonds** on Neptune and Uranus? 💎
+
+---
+
+### 💎 Cosmic Diamond Rain
+
+- **Extreme Pressure:** Intense atmospheric pressure breaks methane gas apart, releasing carbon.
+- **Diamond Formation:** The freed carbon gets squeezed into solid diamonds that sink into the planet's core.
+
 
 
 
