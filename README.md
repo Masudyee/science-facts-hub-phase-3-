@@ -255,6 +255,16 @@ Did you know it **rains diamonds** on Neptune and Uranus? 💎
 
 - **Extreme Pressure:** Intense atmospheric pressure breaks methane gas apart, releasing carbon.
 - **Diamond Formation:** The freed carbon gets squeezed into solid diamonds that sink into the planet's core.
+## 🔬 Science Facts Hub — Phase 3 (Day 45) 🚀
+
+Did you know **water can boil and freeze at the exact same time**? 🧊🔥
+
+---
+
+### 🌡️ The Triple Point
+
+- **The Magic Balance:** At a specific temperature (0.01°C) and pressure, water reaches its "Triple Point."
+- **Three States:** Solid ice, liquid water, and gas steam exist together in perfect equilibrium!
 
 
 
