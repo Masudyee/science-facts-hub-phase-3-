@@ -265,6 +265,16 @@ Did you know **water can boil and freeze at the exact same time**? 🧊🔥
 
 - **The Magic Balance:** At a specific temperature (0.01°C) and pressure, water reaches its "Triple Point."
 - **Three States:** Solid ice, liquid water, and gas steam exist together in perfect equilibrium!
+## 🔬 Science Facts Hub — Phase 3 (Day 46) 🚀
+
+Did you know **hot water freezes faster than cold water**? ❄️🔥
+
+---
+
+### 🧪 The Mpemba Effect
+
+- **Counterintuitive Science:** Under certain conditions, warm water cools and freezes quicker than cold water.
+- **The Mysterious Cause:** Scientists believe it's due to evaporation rates, dissolved gases, and hydrogen bonding.
 
 
 
