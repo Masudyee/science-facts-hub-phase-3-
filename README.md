@@ -275,6 +275,17 @@ Did you know **hot water freezes faster than cold water**? ❄️🔥
 
 - **Counterintuitive Science:** Under certain conditions, warm water cools and freezes quicker than cold water.
 - **The Mysterious Cause:** Scientists believe it's due to evaporation rates, dissolved gases, and hydrogen bonding.
+## 🔬 Science Facts Hub — Phase 3 (Day 47) 🚀
+
+Did you know **sharks existed before trees**? 🦈🌳
+
+---
+
+### 🦈 Older Than Trees
+
+- **Ancient Survivors:** The earliest evidence of shark scales dates back **450 million years**.
+- **Tree Evolution:** The earliest species that we would define as a tree evolved around **350 million years ago**.
+- **Timeless Predators:** Sharks survived four of the "Big Five" mass extinctions!
 
 
 
