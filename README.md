@@ -286,6 +286,17 @@ Did you know **sharks existed before trees**? 🦈🌳
 - **Ancient Survivors:** The earliest evidence of shark scales dates back **450 million years**.
 - **Tree Evolution:** The earliest species that we would define as a tree evolved around **350 million years ago**.
 - **Timeless Predators:** Sharks survived four of the "Big Five" mass extinctions!
+## 🔬 Science Facts Hub — Phase 3 (Day 48) 🚀
+
+Did you know **octopuses have three hearts and blue blood**? 🐙💙
+
+---
+
+### 🐙 Octopus Anatomy
+
+- **Three Hearts:** Two hearts pump blood to the gills, while the third pumps it to the rest of the body.
+- **Blue Blood:** Their blood is copper-based (hemocyanin) instead of iron-based, which helps them survive in cold, low-oxygen water.
+
 
 
 
