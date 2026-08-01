@@ -296,6 +296,18 @@ Did you know **octopuses have three hearts and blue blood**? 🐙💙
 
 - **Three Hearts:** Two hearts pump blood to the gills, while the third pumps it to the rest of the body.
 - **Blue Blood:** Their blood is copper-based (hemocyanin) instead of iron-based, which helps them survive in cold, low-oxygen water.
+## 🔬 Science Facts Hub — Phase 3 (Day 49) 🚀
+
+Did you know **Venus is the only planet that rotates clockwise**? ♀️🪐
+
+---
+
+### 🪐 Retrograde Rotation
+
+- **Spinning Backwards:** Unlike most planets in our solar system, Venus spins from east to west.
+- **The Sun Rises in the West:** On Venus, the sun rises in the west and sets in the east!
+- **Cataclysmic Past:** Scientists believe a massive collision in its early history flipped its spin upside down.
+
 
 
 
