@@ -307,6 +307,24 @@ Did you know **Venus is the only planet that rotates clockwise**? ♀️🪐
 - **Spinning Backwards:** Unlike most planets in our solar system, Venus spins from east to west.
 - **The Sun Rises in the West:** On Venus, the sun rises in the west and sets in the east!
 - **Cataclysmic Past:** Scientists believe a massive collision in its early history flipped its spin upside down.
+## 🔬 Science Facts Hub — Phase 3 Wrap-up (Day 50) 🚀
+
+Did you know **a day on Venus is longer than its year**? 🪐⏱️
+
+---
+
+### 🎉 Phase 3 Complete! (Day 50)
+
+- **Slow Spin:** It takes Venus **243 Earth days** to rotate once on its axis.
+- **Fast Orbit:** It only takes Venus **225 Earth days** to travel around the Sun.
+- **Cosmic Paradox:** A single day on Venus is longer than its full year!
+
+---
+
+### 🏁 Chapter Closed: Phase 3
+With Day 50, we successfully conclude **Phase 3**! Thank you for following along this incredible journey of daily science facts. 
+
+👉 **Up Next:** Get ready for **Phase 4** starting tomorrow! 🎯
 
 
 
